@@ -2,8 +2,6 @@
 
 https://arab.org/click-to-help/palestine/ 
 
-read my rentry for more infos guys heh
-
 (magic cherry fandom arise....)
 
 https://github.com/user-attachments/assets/03fc2857-9742-457c-96b5-aa980590bc37
