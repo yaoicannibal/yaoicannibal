@@ -4,7 +4,9 @@ https://arab.org/click-to-help/palestine/
 
 read my rentry for more infos guys heh
 
-![download (14)](https://github.com/user-attachments/assets/0699fcb3-dcb7-4002-a14b-149599ae7f03)
+(magic cherry fandom arise....)
+
+https://github.com/user-attachments/assets/03fc2857-9742-457c-96b5-aa980590bc37
 
 
 ![i_love_my_computer_stamp_by_taryn_syndrome](https://github.com/user-attachments/assets/13092550-42e6-42d0-aad3-f799fa2f75b3) 
