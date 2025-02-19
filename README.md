@@ -1,5 +1,7 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=yaoicannibal&label=cool+ppl&base=99000)
 
+whisper are turned off... sign my ata instead if u too scared to say smth to me
+
 https://arab.org/click-to-help/palestine/ 
 
 
